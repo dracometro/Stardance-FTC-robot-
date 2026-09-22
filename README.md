@@ -56,4 +56,4 @@ The shooter is arguably the most important part of the robot (it actually scores
 <br><br>
 Conclusion 
 <br><br>
-Thank you for going through all of this! I love this robot and think it is one of the best things I have done so far. I hope you love it just as much as I do.  Side note, if I do not get enough stardust to get the computer bag I will scream, cry, then curse 10,000 years of poor harvests on everyone who did 
+Thank you for going through all of this! I love this robot and think it is one of the best things I have done so far. I hope you love it just as much as I do.  Side note, if I do not get enough stardust to get the computer bag I will scream, cry, then curse 10,000 years of poor harvests on everyone who did not vote well for me :)
